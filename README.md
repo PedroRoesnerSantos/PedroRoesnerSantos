@@ -8,6 +8,7 @@ My name is Pedro Roesner Santos
 - Problably i'll nevermore use this platform
 - You can enter in contact with me using @vemnopedrao in Instragram
 - Thx
+- You can find me making things i really like [here](https://www.youtube.com/@thetaix9498)
 
 ![](https://media.tenor.com/3MaH90W7d4gAAAAd/hinata-pourmins.gif)
 
